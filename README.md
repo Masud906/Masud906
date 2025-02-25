@@ -1,4 +1,4 @@
-![Web Developer](https://i.ibb.co.com/7y3v4Sk/Screenshot-2024-05-06-215411.png)
+![Web Developer](https://i.ibb.co.com/bgT7ZWpR/wp8903951.jpg)
 
 ### Hi there 👋, I'am Masud Rana
 #### Web Developer
